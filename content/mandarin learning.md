@@ -6,7 +6,6 @@ tags:
 ## Intro
 
   
-
 It's a common goal of mine to be able to understand Chinese mainland mandarin and navigate or sustain day to day talk in a roughly competent manner.
 
 My interest in Chinese goes way back to my childhood. The symbols (ideograms), martial arts and overall cultural aspects instilled in me a fascination of it's own kind. Now, heading into this journey.
